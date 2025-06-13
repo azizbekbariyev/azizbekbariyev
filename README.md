@@ -16,7 +16,7 @@
 - 📫 Contact me:
   - GitHub: [@azizbekbariyev](https://github.com/azizbekbariyev)
   - LinkedIn: [linkedin.com/in/azizbekbariyev](https://linkedin.com/in/azizbekbariyev)
-  - Telegram: [@azizbekbariyev](https://t.me/Azizbek_Bariyev)
+  - Telegram: [@Azizbek_Bariyev](https://t.me/Azizbek_Bariyev)
 
 ---
 
